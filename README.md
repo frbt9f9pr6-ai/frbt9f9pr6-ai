@@ -89,7 +89,7 @@ Cette section accueillera progressivement mes projets académiques et personnels
 
 📫 Me contacter
 
-• 💼 LinkedIn : El Hadji Makhtar Mbaye
+• 💼 LinkedIn : https://www.linkedin.com/in/el-hadji-makhtar-mbaye-533615442
 • 📧 Email : elmakhtar07@gmail.com 
 
 ────────
